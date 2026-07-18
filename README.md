@@ -8,4 +8,4 @@ Welcome to my profile! I'm a student wanting to bring my ideas to life.
 *   A big fan of Crows, favourite animal.
 
 ## Fun Fact
-Did you know that the carrion crow is around 48 to 52 cm in length and it has a wingspan of 84 to 100 and weighs 400 to 600 grams? 
+Did you know that the Carrion Crow is around 48 to 52 cm in length and it has a wingspan of 84 to 100 and weighs 400 to 600 grams? 
